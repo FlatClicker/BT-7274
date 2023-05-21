@@ -4,7 +4,7 @@ Bravo-Tango-Seven-Two-Seven-Four, often simply referred to as BT-7274 or BT, is 
 
 For all intents and purposes, BT-7274 is the deuteragonist of Titanfall 2's single-player campaign, serving as Jack Cooper's right hand and protector.
 
-| BT- 7274  |
+| BT- 7274  |                                  |
 | --------- | :------------------------------: |
 | Real name | Bravo-Tango-Seven-Two-Seven-Four |
 | Alias     |           BT-7274, BT            |
