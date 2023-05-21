@@ -10,4 +10,4 @@ For all intents and purposes, BT-7274 is the deuteragonist of Titanfall 2's sing
 | Alias     |           BT-7274, BT            |
 | Homeworld |        Harmony (presumed)        |
 
-![Alt text](c:/Users/Roland/Desktop/let%C3%B6lt%C3%B6tt%20k%C3%A9pek/wp5731329.webp)
+![Alt img](c:/Users/Roland/Desktop/let%C3%B6lt%C3%B6tt%20k%C3%A9pek/726634.jpg)
