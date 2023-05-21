@@ -12,4 +12,4 @@ For all intents and purposes, BT-7274 is the deuteragonist of Titanfall 2's sing
 
 Here's our logo (hover to see the title text):
 
-![BT-7274](/726634.jpg)
+![BT-7274](<images/!(wp5731329.jpg)>)
